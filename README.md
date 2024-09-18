@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data Analytics and Visualization.
 - 🌱 I’m currently learning Data Analytics and Visualization throught the U of MN data analytic bootcamp
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me projectsmmatti@gmail.com
+- 📫 How to reach me projectsmmatti@gmail.com or mattimatt@hotmail.com
 - 😄 Pronouns: He / Him / Sir
 - ⚡ Fun fact: ...
 
